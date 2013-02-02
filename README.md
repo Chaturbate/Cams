@@ -1,6 +1,6 @@
 Cams
 ====
-
+By, <a href="https://plus.google.com/104993325564814133060?rel=author">Penny Stocks Tizzoke</a> <a href="https://plus.google.com/104993325564814133060?rel=publisher">Find us on Google+</a>
 <a href="http://freechaturbate.blogspot.com">Chaturbate</a> blogger from <a href="http://Chaturbatez.com">Chaturbater cams</a>
 
 Chaturbte free cams offers the best live public cam shows you will see from any adult webcam website.
