@@ -7,7 +7,7 @@ Chaturbte free cams offers the best live public cam shows you will see from any 
 
 Cam girl wiki http://en.wikipedia.org/wiki/camgirl
 
-<a href="http://freechaturbate.blogspot.com">Chaturbate</a> vs <a href="http://MyFreeCamsloader.com/">MyFreeCams</a> has moved to to <a href="http://chaturbatez.com">Chaturbate NEW</a>  
+<a href="http://freechaturbate.com">Chaturbate</a> vs <a href="http://MyFreeCamsloader.com/">MyFreeCams</a> has moved to to <a href="http://chaturbatez.com">Chaturbate NEW</a>  
 Chaturbate is a collection of blog and online social networking profiles dedicated to the exposure of 
 Free adult webcam sites that are truly *FREE* Specifically promoting the only true FREE live member adult webcam shows where
  you can Chat free with performers or members broadcasting their webcams. with or without broadcasting your own as well. 
